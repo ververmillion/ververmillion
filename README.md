@@ -4,6 +4,13 @@
 
 **SIGN MY ATA PLEASE!! RIGHT NOW!!! EVEN IF IT'S ONE WORD OR BRAINROT!!!**
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31tgj75yyxfu7fkxkhyrfov34y3u&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=ffffff&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
+  </a>
+</p>
+ <div>
+   
+ </div>
+
 <img src="https://files.catbox.moe/h21wjb.jpeg" width="350">
 <div>
   
