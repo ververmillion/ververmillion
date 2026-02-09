@@ -2,7 +2,7 @@
   
 ![](https://komarev.com/ghpvc/?username=ververmillion&label=meow🐈‍⬛&style=flat-plastic&color=grey)
 
-**SIGN MY ATA PLEASE**
+**SIGN MY ATA PLEASE!! RIGHT NOW!!! EVEN IF IT'S ONE WORD OR BRAINROT!!!**
 
 <img src="https://files.catbox.moe/h21wjb.jpeg" width="350">
 <div>
